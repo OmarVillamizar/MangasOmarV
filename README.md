@@ -1,0 +1,2 @@
+# MangasOmarV
+MangasOmarV - corrección completa.
